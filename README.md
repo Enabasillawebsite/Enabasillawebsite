@@ -1,10 +1,12 @@
-- 👋 Hi, I’m @Enabasillawebsite
-- 👀 I’m interested in kahit anu
-- 🌱 I’m currently learning about law
-- 💞️ I’m looking to collaborate on dko gets
-- 📫 How to reach me IG:enaaaaaaabasilla
+🌻—hi i'm enabasillabronzal 
+  ♡from philippines🇵🇭
+  ♡i love listening music
+  ☞INSTAGRAM:enaaaaaaabasilla
+  ☞FACEBOOK:
+https://www.facebook.com/anewor.basilla
 
-<!---
-Enabasillawebsite/Enabasillawebsite is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+∆Never depend on a man,
+Be a woman on your own
+So you won't have to lose anything:
+
